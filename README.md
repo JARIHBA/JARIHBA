@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JARIHBA
+- 👀 I’m interested in coading
+- 🌱 I’m currently learning coading
+- 💞️ I’m looking to collaborate on coading
+- 📫 How to reach me 
